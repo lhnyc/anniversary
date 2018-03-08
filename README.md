@@ -1,1 +1,1 @@
-# LightHouse Christain Outreach Center - First Anniversary Online Presence Project
+# Lighthouse Christain Outreach Center - First Anniversary Online Presence Project
